@@ -1,1 +1,1 @@
-Case studies in various topics
+Case studies on various topics
